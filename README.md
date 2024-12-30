@@ -1,6 +1,6 @@
 # CloudUpUp官网地址
 
-最新地址：[cloudupup05.com](https://cloudupup05.com/auth/register?code=CEFW)
+最新地址：[cloudupup05.com](https://cloudupup.cc/auth/register?code=AEk8)
 
 ## CloudUpUp机场简介
 
